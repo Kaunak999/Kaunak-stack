@@ -19,7 +19,6 @@ If you’re ready for some 🔥 projects, bold ideas, and a developer who’s al
 
 ###
 
-<img align="right" height="150" src="https://i.imgflip.com/65efzo.gif"  />
 
 ###
 
